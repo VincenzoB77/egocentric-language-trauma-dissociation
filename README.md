@@ -14,7 +14,10 @@ Trauma and dissociation disrupt the continuity of the Self, fragment symbolic pr
 The Bumbalo Model proposes that AEL is not a regression or a primitive remnant of childhood, but a mature adult function that supports affect regulation, symbolic mediation, and identity cohesion. This paper examines how AEL emerges in trauma and dissociation, and how it functions as a stabilizing and integrative mechanism.
 
 2.	Trauma, Dissociation, and the Disruption of Symbolic Capacity
-Trauma overwhelms the psyche’s capacity to symbolize experience. Dissociation fragments:
+
+Trauma overwhelms the psyche’s capacity to symbolize experience.
+
+Dissociation fragments:
 
 •	affect
 
