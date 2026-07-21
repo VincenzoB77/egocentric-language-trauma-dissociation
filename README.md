@@ -1,7 +1,9 @@
 EGOCENTRIC LANGUAGE IN TRAUMA AND DISSOCIATION
 A Clinical and Phenomenological Analysis within the Bumbalo Model
 
-Vincenzo Bumbalo, MD Analytical Psychotherapist – Jungian-Oriented Psychoanalyst Independent Researcher in Psychology and Linguistics Developer of the Bumbalo Model of Adult Egocentric Language Clifton Park, New York, USA
+Vincenzo Bumbalo, MD Analytical Psychotherapist – Jungian-Oriented Psychoanalyst Independent Researcher in Psychology and Linguistics Developer of the Bumbalo Model of Adult Egocentric Language 
+
+Clifton Park, New York, USA
 
 Author Bio
 Dr. Vincenzo Bumbalo, MD, is an analytical psychotherapist and Jungian-oriented psychoanalyst based in Clifton Park, New York. He is the author and founder of the Bumbalo Model of Adult Egocentric Language, a theoretical framework describing self-directed spoken language as a symbolic, regulatory, and affect-organizing function of the adult psyche. His work integrates analytical psychology, phenomenology, object relations, and self-psychology, with a focus on trauma, dissociation, and the formation of the adult Self.
