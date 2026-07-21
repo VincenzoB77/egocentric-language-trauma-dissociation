@@ -173,6 +173,7 @@ In trauma and dissociation, Adult Egocentric Language functions as a stabilizing
 The Bumbalo Model positions AEL not as a regression, but as a mature adult function essential for psychological survival and integration.
 
 References
+
 Bumbalo, V. (2026). Egocentric Language in Trauma and Dissociation. 
 
 Bumbalo, V. (2026). Foundations of the Bumbalo Model of Adult Egocentric Language. 
